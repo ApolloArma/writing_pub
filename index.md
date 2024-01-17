@@ -1,6 +1,6 @@
-## Rudish Skrift
+## Chapter 1: Rudish Skrift
 
-![Rudish](rudish.png)
+---
 
 As the world fades in from blackness, the first sensation is the rhythmic rocking of a carriage. The view is confined, restricted – we see through the eyes of Rudish Skrift. He's in a cramped, metal prison transport, the clanking of chains accompanying every jolt and sway, stemming from the uneven path traveled by the single horse buggy.
 
@@ -41,3 +41,65 @@ Realizing it was time to leave, Rudish walked out of the tavern with the same ca
 For Rudish, the decision to leave was practical, not borne of any moral deliberation. It was clear that what had transpired would set him apart from the anonymity he preferred. The altercation wasn't a matter of right or wrong to him; someone had simply reaped the consequences of their own actions. However, reading the room's shift to a tense stillness, he recognized that fading into the background once again meant stepping out the door. It wasn't about guilt or innocence—it was about maintaining the unobtrusive existence that had always served him best.
 
 **Exit Flashback:**
+
+The vivid recollections of the Red Rock tavern faded, leaving Rudish to the stark reality of his cramped confines. He blinked, the harshness of the carriage's interior reasserting itself with an almost abrasive clarity. His senses, sharpened by the relived memories, now fully embraced the present. He could feel each jolt of the carriage more acutely, the rattling chains a constant reminder of his captivity.
+
+Yet, despite the vividness of his flashback, Rudish remained unfazed by his lack of understanding of how he had ended up here, outside Dagger Falls, in a prison carriage. That puzzle, though intriguing, held little immediate significance for him. His mind, ever pragmatic and focused, prioritized the 'now' over the 'how' or 'why.' The past was a trail gone cold; what mattered was the path ahead, however obscured it might currently be.
+
+The guard, still maintaining his watchful gaze, seemed to expect some reaction – a flicker of fear, a spark of anger, anything that might betray inner turmoil. But there was none from Rudish. His expression was one of innate stoicism, an unfeigned calmness. To the untrained eye, he appeared unreadable, an enigmatic presence embodying a tranquility that belied his formidable nature.
+
+The carriage hit a particularly rough patch, jostling its occupants. Rudish shifted his weight, the chains clinking in response. His eyes, having momentarily followed the motion of his hands, now returned to the guard. The guard’s attempt at banter had ceased, failed, and been replaced by an uncomfortably long quiet, leaving an almost expectant air. It was as if they both could sense the imminent tide of change, a palpable shift in the air. The guard, with a dawning sense of unease, seemed to realize that the control he believed he held might just have been an illusion.
+
+he carriage trundled carelessly on, its journey uninterrupted by the evolving dynamics inside. Rudish's shoulders ached from the uncomfortable position imposed by the shackles. Until now, the chains hadn't bothered him; he hadn't seen them as an immediate concern. However, the inability to rest his hands open-palmed on his thighs – a posture he found naturally comforting – was becoming a nagging annoyance.
+
+In that instant, Rudish, driven by the discomfort of the tight chains, decided on a course of action. With a sudden, almost casual display of raw strength, he flexed his muscles and blew the chains apart. The sound was less of an explosion and more of a sharp, ringing 'clash' that resonated through the metal carriage. The links that failed under his force blasted against the metal walls, leaving a resounding echo in their wake.
+
+Then, as if nothing extraordinary had happened, Rudish calmly placed his hands on his thighs, assuming his preferred, relaxed posture. The chains around his ankles remained intact, but they were of no concern to him at the moment. His actions had been a simple remedy to an immediate discomfort, nothing more.
+
+The sudden, unbridled display of strength sent the guard spiraling into sheer panic. His facade of control shattered in an instant, overtaken by a wave of terror so intense it seemed to paralyze him momentarily. His eyes, wide with disbelief, reflected a primal fear as the reality of his situation became starkly clear: confined in a small space with a loose, hostile creature nearly twice his size and possessing more than thrice his strength. His body tensed, bracing for an unseen, unimaginable threat, as the weight of his perilous position truly set in.
+
+In a flurry of uncontrolled fear, the guard scrambled into the farthest corner of the carriage. He curled up defensively, his arms raised in a feeble gesture of protection, his body trembling uncontrollably. The weapon at his side, a symbol of his authority and protection, lay forgotten in his panic, a silent witness to his complete and utter surrender.
+
+Amidst the chaos of the guard's terror, Rudish leaned his head back against the carriage wall, resting comfortably, eyes closed with a slight, contented smile on his face. The guard's overwhelming fear seemed almost to comfort Rudish, reinforcing his position of control and power.
+
+With his head still leaned back against the metal wall, and his eyes closed, Rudish said calmly in his low rumbling voice, "Open the carriage door."
+
+However inclined the guard might have been to heed Rudish's command, his overwhelming fear rendered him incapable of action. He was seized by such intense trembling that he couldn't muster the strength to move, let alone articulate a response. Words failed him, trapped in a throat tight with panic.
+
+In the absence of a response from the guard, a drastic change overtook Rudish. The calmness that had so defined him moments ago gave way to an explosive rage. His eyes snapped open, and with a violent surge of energy, he lunged forward. The air in the carriage seemed to crackle with the intensity of his anger.
+
+"Open the fucking dooooor!" he roared, the words ripping through the tense silence. His voice was a thunderous bellow, filled with unchecked fury. As he screamed, his teeth gritted in a primal display of aggression, his gaze locked fiercely on the guard.
+
+Rudish's sudden eruption of fury only served to deepen the guard's paralyzing terror. He crumpled further, his body contorting as he fell onto his side in the cramped space of the carriage. Assuming the fetal position, he wrapped his arms around his head in a desperate attempt to shield himself, his whole frame shaking uncontrollably.
+
+Rudish, entirely consumed by his rage, surged towards the terrified guard. The chains binding his ankles to the carriage floor were no match for his fury. With a raw display of strength, he ripped them apart, the sound of metal tearing from metal echoing in the confined space.
+
+In one fluid, uncontrolled motion, Rudish grasped the guard by his uniform. With a ferocious howl, he hurled him against the opposite wall of the carriage. The impact was so forceful that the whole carriage shuddered violently, teetering dangerously on the brink of tipping over. For a heart-stopping moment, it seemed as if it would succumb to the weight of the altercation, but it barely managed to right itself, swaying back onto its wheels.
+
+This commotion did not go unnoticed. Abruptly, the carriage came to a jarring halt, the sudden cessation of movement indicating that the driver had become acutely aware that something was amiss in the rear. The situation had escalated beyond the confines of the carriage, the repercussions of Rudish's unbridled anger now reaching beyond its metal walls.
+
+The carriage had barely come to a standstill when the driver, alarmed by the violent tumult inside, rushed to the barred window on the side of the carriage. His eyes widened in shock at the chaos that greeted him.
+
+Rudish, hearing the driver's approach, acted with swift brutality. He grabbed the guard by the neck, his grip iron-tight. With a movement brimming with controlled rage, he smashed the guard's face against the bars of the window. The guard's muffled groans of pain mingled with the clanging of metal as his face collided with the iron.
+
+"Open the fucking door, or I'll press his face through it!" Rudish bellowed, his voice a thunderous roar that reverberated through the carriage. His eyes, burning with fury, locked onto the driver's, leaving no room for doubt about his deadly intent. The threat hung in the air, palpable and chilling, a stark ultimatum that promised further violence if not heeded.
+
+The driver offered not even a second to think about the scene that would unfold should he let the enraged half-orc outside and ran as fast as he could away from the carriage, to anywhere but there. As Rudish came good on his promise to somehow make the guard's face fit through the bars of the carriage window, a sudden, distinct smacking noise caught his attention. He saw the driver catch fire and fall to the ground, limp and lifeless.
+
+Rudish released his grip on the guard, letting the battered but still breathing man slump to the metal floor of the carriage. He then turned his attention to the window, his large fingers wrapping around the cold metal bars. As he peered out, the flames from outside illuminated his face, highlighting his excited eyes and happy grin. In this fiery glow, there was an unmistakable look of recognition, a clear indication that he knew exactly what was unfolding before him.
+
+---
+
+## Chapter 2: El'Roso Dorthonion
+
+---
+
+"Feck!" El'roso's voice echoed sharply through the small library, bouncing off the stone pillars and into the larger common area guarded by Lord Morn's sentinels. The library, tucked away in a corner of the town hall, was modest compared to the vast archives he had scoured in other cities. Its limited collection was a stark reminder of his growing desperation to find what he sought.
+
+He had come here, driven by a sliver of hope that this unassuming place might hold the elusive piece of knowledge that had evaded him in grander libraries. Yet, as the hours had passed, that hope had begun to fray.
+
+The reaction of a nearby guard to his sudden outburst caught El'roso's attention. The guard's head turned slightly, a faint look of surprise on his face before resuming his stoic stance. El'roso scoffed at himself, aware he should have been more discreet. The last thing he needed was to draw unnecessary attention.
+
+He glanced around the quaint space, its shelves crammed with books that held tales and truths of Dagger Falls but seemingly not the one truth he needed. With a resigned sigh, he closed yet another volume, its secrets as sealed to him as those of the larger tomes he had left behind in more prestigious libraries.
+
+The echo of his outburst still lingered in the air, a poignant reminder of his frustration and the urgency that gnawed at him. In this small library, amidst the watchful eyes of Lord Morn's guards, El'roso felt the weight of his unfulfilled quest more acutely than ever.
